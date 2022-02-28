@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mackee420
-- 👀 I’m interested in drgus
+- 👀 I’m interested in drugs
 - 🌱 I’m currently learning botnet server dev
 - 💞️ I’m looking to collaborate on discord
 - 📫 How to reach me discord RiktigaMackee#6510
